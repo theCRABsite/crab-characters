@@ -4,4 +4,4 @@
 
 
 ## CRAB Characters
-The CRAB characters are part of the CRAB meme. They are free to use by the CRAB community.
+The CRAB characters are part of the CRAB meme. They are free to use by the CRAB community. You can find the images in the image folder.
